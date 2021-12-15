@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @colbykec
+- 👀 I’m interested in I will need to use a websites data to make judgement and calculate using a formula that will give the user a result in a specific area. Also what language do you use? What are your prices? Have you done any similar past projects?
+- 💞️ I’m looking to collaborate on zoom / whatsapp
+- 📫 How to reach me ... email me at colbykec@yahoo.com
